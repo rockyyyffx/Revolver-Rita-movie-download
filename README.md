@@ -2,10 +2,10 @@
 Revolver Rita 𝚕𝚊𝚝𝚎𝚜𝚝 𝚜𝚞𝚙𝚎𝚛𝚗𝚊𝚝𝚞𝚛𝚊𝚕 𝚌𝚘𝚖𝚎𝚍𝚢 𝚑𝚘𝚛𝚛𝚘𝚛 𝙼𝚘𝚟𝚒𝚎 Revolver Rita 𝚊𝚝 𝚑𝚘𝚖𝚎. Revolver Rita 𝟸𝟶𝟸𝟻 𝚊𝚟𝚊𝚒𝚕𝚊𝚋𝚕𝚎 𝚝𝚘 𝚂𝚝𝚛𝚎𝚊𝙼? 𝙸𝚜 𝚆𝚊𝚝𝚌𝚑𝚒𝚗𝚐 Revolver Rita 𝚘𝚗 𝙿𝚎𝚊𝚌𝚘𝚌𝚔, 𝙷𝙱𝙾 𝙼𝚊𝚡, 𝙽𝚎𝚝𝚏𝚕𝚒𝚡 𝚘𝚛 𝙳𝚒𝚜𝚗𝚎𝚢𝙿𝚕𝚞𝚜? Download
 # Revolver Rita (2025) – Tamil Movie | Keerthy Suresh | Crime Comedy
 
-![Revolver Rita Poster]([https://example.com/revolver-rita-poster.jpg](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcSsL0vWwZ2MsgTRjBbqE83AZuTtRF7eSArtEqNQ2dQCMcQW3cLTmvASoAim&s=10))
+![Revolver Rita Poster]([https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcSsL0vWwZ2MsgTRjBbqE83AZuTtRF7eSArtEqNQ2dQCMcQW3cLTmvASoAim&s=10])
 
 
-[![Download Full movie]([https://img.shields.io/badge/Download-Poster-green.svg](https://tr.ee/Y1sORb))]([https://github.com/username/repo-name/raw/main/images/poster.jpg](https://tr.ee/Y1sORb))
+[Download Full movie](https://tr.ee/Y1sORb)
 
 **Revolver Rita** is an upcoming **Tamil crime comedy film** directed by **JK Chandru** and starring **Keerthy Suresh** in the lead role.  
 This highly anticipated movie is set for theatrical release on **27 August 2025**, coinciding with **Vinayagar Chaturthi** celebrations.  
